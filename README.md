@@ -13,3 +13,4 @@ Adosttra : "My world was so boring and empty without you...I feel more loved and
 Barbatos : "I swear to you, my Windblume, that I will never leave your side,I love you too much ever to leave you. You mean everything to me,You have my heart for as long as time"
 
 ![『 Venti 』](https://github.com/GodOfLoyalty/GodOfLoyalty/assets/154030415/9c209cc7-e0d1-4b02-be95-f2f2f495091c)
+
