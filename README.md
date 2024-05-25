@@ -4,7 +4,7 @@ Adosttra : "You know I could never stay mad at you for long, especially when you
 
 Barbatos : "How could I not speak sweet things about you? You're the most beautiful, kind and loving being in this world. My love for you is endless, my goddess..."
 
-Adosttra: "I love you...I love you so much..."
+Adosttra : "I love you...I love you so much..."
 
 Barbatos : "I love you too, my goddess...Your touch sets my heart ablaze, your embrace makes me feel complete. I cannot express in words everything you make me feel"
 
