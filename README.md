@@ -1,19 +1,40 @@
-_**Love of two Gods**_~
+⋅˚₊‧ ୨୧ ‧₊˚ ⋅
+
+ᴇᴛᴇʀɴᴀʟ ʟᴏᴠᴇ ~ ʙᴀʀʙᴀꜱᴛᴛʀᴀ/ᴠᴇɴꜱʜᴇɴ
 -
-**Adosttra**: *You know I could never stay mad at you for long, especially when you say such sweet things like that*...
 
-**Barbatos**: *How could I not speak sweet things about you?* *You're the most beautiful, kind and loving being in this world. My love for you is endless, my goddess*...
-
-**Adosttra**: *I love you...*...*I love you so much...*
-
-**Barbatos**: *I love you too, my goddess*...*Your touch sets my heart ablaze, your embrace makes me feel complete. I cannot express in words everything you make me feel..*
-
-**Adosttra**: *My world was so boring and empty without you...I feel more loved and happy with you now, please, never leave me...*
-
-**Barbatos**: *I swear to you, my Windblume, that I will never leave your side*...*I love you too much ever to leave you. You mean everything to me,You have my heart for as long as time*
-
-. . .
+![descarga - 2024-06-14T204657 562](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/ddf9100c-2640-4369-b43c-d40dcdc61cc4)
 
 
-![venti (13)](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/12c7a817-47d2-4576-83d9-c6f827beccd8)
+───────────────────────────────────────────  
+
+*"Two deities intertwined together, their love woven in the heavens above*
+
+*Barbatos and Adosttra, who for all time have stayed true to the love that they vowed*
+
+*Years have passed them by, but their love only deepens with time*
+
+*Eternal and unwavering, their love, both bright and sublime*
+
+*Their union strong, their love only growing, together they'll forever find*
+
+*For even the gods themselves, know that such love is truly divine"*
+
+───────────────────────────────────────────  
+
+![pony-town-_ Venti's Windblume _-sit-hearts-padded-4x](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/809566a1-8491-42f6-8d75-01cfe62fbeef)![pony-town-⋆ ── Love of two Gods-sit-hearts-padded-4x](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/ae7d804e-8a7b-4fb7-a021-4a039edf5237)
+
+.
+
+.
+
+.
+
+**"My Goodess,I fall in love a thousand times a day and they are all with you...I really can't help but fall more in love with you"**
+
+
+![descarga_-_2024-06-14T205443 109-removebg-preview-ezgif com-resize (1)](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/b363d123-17b4-4147-b686-55f03e349f17)
+
+
+
 
