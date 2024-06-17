@@ -1,6 +1,6 @@
 ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
 
-ᴇᴛᴇʀɴᴀʟ ʟᴏᴠᴇ ~ ʙᴀʀʙᴀꜱᴛᴛʀᴀ/ᴠᴇɴꜱʜᴇɴ
+ᴇᴛᴇʀɴᴀʟ ʟᴏᴠᴇ ~ ʙᴀʀʙᴀꜱᴛᴛʀᴀ/ᴠᴇɴaura
 -
 
 ![descarga - 2024-06-14T204657 562](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/ddf9100c-2640-4369-b43c-d40dcdc61cc4)
