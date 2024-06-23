@@ -3,7 +3,8 @@
 ᴇᴛᴇʀɴᴀʟ ʟᴏᴠᴇ ~ ʙᴀʀʙᴀꜱᴛᴛʀᴀ/ᴠᴇɴaura
 -
 
-![descarga - 2024-06-14T204657 562](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/ddf9100c-2640-4369-b43c-d40dcdc61cc4)
+
+![13 sin título](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/cd1a7168-b0fc-49e7-82ae-0264d609fd9d)
 
 
 ───────────────────────────────────────────  
