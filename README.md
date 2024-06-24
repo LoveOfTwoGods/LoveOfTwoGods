@@ -1,10 +1,10 @@
 ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
 
 ᴇᴛᴇʀɴᴀʟ ʟᴏᴠᴇ ~ ʙᴀʀʙᴀꜱᴛᴛʀᴀ/ᴠᴇɴaura
--
+
+-![13sinttulo-ezgif com-resize (1)](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/0ad156b5-823e-4e25-91bf-d783d55e4aa3)
 
 
-![13 sin título](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/cd1a7168-b0fc-49e7-82ae-0264d609fd9d)
 
 
 ───────────────────────────────────────────  
