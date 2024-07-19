@@ -2,8 +2,8 @@
 
 ᴇᴛᴇʀɴᴀʟ ʟᴏᴠᴇ ~ ʙᴀʀʙᴀꜱᴛᴛʀᴀ/ᴠᴇɴaura
 -
--![13sinttulo-ezgif com-resize (1)](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/0ad156b5-823e-4e25-91bf-d783d55e4aa3)
 
+![FirstnochibiBarbasttradrawing-ezgif com-resize](https://github.com/user-attachments/assets/6b79f869-ef45-4ae5-b15c-0b7bf3da8d66)
 
 
 
