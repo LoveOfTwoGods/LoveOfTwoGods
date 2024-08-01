@@ -1,4 +1,4 @@
-⋅˚₊‧ ୨୧ ‧₊˚ ⋅
+
 
 ᴇᴛᴇʀɴᴀʟ ʟᴏᴠᴇ ~ ʙᴀʀʙᴀꜱᴛᴛʀᴀ/ᴠᴇɴaura
 -
@@ -23,18 +23,10 @@
 
 ───────────────────────────────────────────  
 
-![pony-town-_ Venti's Windblume _-sit-hearts-padded-4x](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/809566a1-8491-42f6-8d75-01cfe62fbeef)![pony-town-⋆ ── Love of two Gods-sit-hearts-padded-4x](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/ae7d804e-8a7b-4fb7-a021-4a039edf5237)
-
-.
-
-.
-
-.
-
-**"My Goodess,I fall in love a thousand times a day and they are all with you...I really can't help but fall more in love with you"**
+![pony-town-Divine Loyal Lady-sit-hearts-padded-ponyplush-4x](https://github.com/user-attachments/assets/78cd2819-f0f4-4265-bfb2-34551313b967)![pony-town-My heavenly wife ~-lie-hearts-padded-4x](https://github.com/user-attachments/assets/e3daaef3-33c9-4e7f-a782-8971a5472b4f)
 
 
-![descarga_-_2024-06-14T205443 109-removebg-preview-ezgif com-resize (1)](https://github.com/LoveOfTwoGods/LoveOfTwoGods/assets/154030415/b363d123-17b4-4147-b686-55f03e349f17)
+
 
 
 
